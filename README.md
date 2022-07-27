@@ -4,7 +4,7 @@
 
 格机模块作者
 QQ：1471349813
-https://yzf.qq.com/fsna/kf-file/kf_pic/20220727/KFPIC_959f4767ac51b5fc4_WXIMAGE_85c25628e6854e55934201df5d746811.jpg?
+https://yzf.qq.com/fsna/kf-file/kf_pic/20220727/KFPIC_959f4767ac51b5fc4_WXIMAGE_85c25628e6854e55934201df5d746811.jpg
 证据：https://www.coolapk.com/feed/37831131?shareKey=M2Q5NTc4NTNkNGRiNjJkZWE3MzM~&shareUid=21365357&shareFrom=com.coolapk.market_9.1.1
 
 QQ：582264718
